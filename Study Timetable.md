@@ -121,3 +121,17 @@ Wed
 ----
 
 ### English Practice Essays; ###
+[Link to Practise Essays](https://docs.google.com/document/d/1UznlVyJKUD7PAeioFvrAnDG4vRhaDOMFPjoF2_t6n6c/edit?ts=59f8fbe7)
+
+**Section A: Comparative Response**
+- Both texts share the idea that no matter how difficult our experiences are, there is always hope. Do you agree?
+- How do both To Kill A Mockingbird and the WW1 Poems criticise social expectations?
+- The characters in To Kill A Mockingbird face a moral conflict similar to the individuals in the WW1 Poems. Do you agree?
+- Explore in both texts the idea that experiences teach us what is important in life.
+- Compare how the WW1 Poetry and TKAM demonstrate the impact of conflict on our sense of identity.
+- To Kill A Mockingbird and the WW1 Poems portray the complexities of human nature. Discuss.  
+
+**Section B: Language Analysis**
+- Your introduction should include: Context, title, date, author, form (editorial, opinion article etc), publication (The Age etc.), contention and tone.
+- Remember to be specific regarding the impact on the reader. How does the language position the audience to respond?
+- Read carefully, annotate and write a response for the following text: 	
